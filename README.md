@@ -1,0 +1,1 @@
+# 8Gridarea_minminshop
